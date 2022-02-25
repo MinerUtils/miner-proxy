@@ -20,6 +20,6 @@
 
 https://user-images.githubusercontent.com/100408322/155689146-4a068c41-9d3d-49d1-b1a0-a39030d617b5.mp4
 
-# 电报交流群
-
+# QQ交流群
+321740385
 
